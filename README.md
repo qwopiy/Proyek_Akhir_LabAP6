@@ -11,4 +11,4 @@ Screenshot program ToDoList :
 
 Link Video : https://drive.google.com/drive/folders/1Ao1urs0x7QnRHSZnpzqpdM4cYIibz9yt?usp=drive_link 
 
-Semoga program kami terlihat bagus di mata juri-juri IMILKOM 🙏🙏🙏
+Semoga program kami terlihat bagus di mata juri-juri IKLC 🙏🙏🙏
